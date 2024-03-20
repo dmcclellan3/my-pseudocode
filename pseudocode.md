@@ -13,6 +13,8 @@ Instant-read thermometer
 
 Pork butt  
 
+Buns
+
 Your favorite BBQ rub   
 
 Your BBQ sauce of choice  
@@ -75,4 +77,6 @@ When temperature has been reached use your thermometer to check to ensure the po
 
 IF pork is tender, remove from the smoker and allow it to rest for an hour
 
-ELSE place back on the smoker UNTIL tenderness is reached.  
+ELSE place back on the smoker UNTIL tenderness is reached. 
+
+Once cooking is done pull apart the meat and place on a bun with your sauce of choice. 
